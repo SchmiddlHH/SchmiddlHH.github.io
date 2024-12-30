@@ -13,3 +13,5 @@ Donald leidet aber stark darunter, dass dem Glückspilz Gustav das Glück gerade
 
 ## Bestes Zitat
 > I’ve heard of cat burglars, but this is ridiculous!
+
+<img src="https://de.wikipedia.org/wiki/Datei:DonaldDuck.jpg" />
